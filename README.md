@@ -1,3 +1,0 @@
-# mem
-Lol
-@DaddyTezzy
